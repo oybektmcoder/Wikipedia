@@ -1,0 +1,2 @@
+# Wikipedia
+Uzbekcha Wikipedia
